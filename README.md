@@ -9,6 +9,7 @@ Frontend Development
 Java & C#**
 
 - 📫 How to reach me **abbasizamin40@gmail.com**
+- My Resume Link: **https://drive.google.com/file/d/1_Jm-bjOSLpL1jaagxWsHeOTCrvBWbsHC/view?usp=drivesdk**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
